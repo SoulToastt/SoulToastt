@@ -1,0 +1,5 @@
+- Hi, i'm SoulToastt, small streamer, very good at giving up.
+- My twitch link is https://www.twitch.tv/soultoastt if you ever feel like watching me for some odd reason.
+- I currently can't stream as much as i usually do due to schoolwork and other things.
+- I wish you nothing but the best, have a wonderfull day. 
+- See ya 'round, like a quarter-pound!
